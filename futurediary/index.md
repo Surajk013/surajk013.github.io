@@ -1,6 +1,6 @@
 # Hello Friend
 
-I named this dairy as *"Future diary"* just in the hope that some day this will turn into an acutal as happened in the anime
+I named this dairy as *"Future diary"* just in the hope that some day this will turn into an acutal one,  as happened in the anime
 
 10th January 2025
 
